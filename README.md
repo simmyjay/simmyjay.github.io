@@ -1,1 +1,0 @@
-# simmyjay.github.io
